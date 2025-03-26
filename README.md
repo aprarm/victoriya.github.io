@@ -1,1 +1,0 @@
-# vicrotiya.github.io
